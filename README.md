@@ -1,0 +1,1 @@
+# Resimden-Belli-Bir-Kesit-Alma
